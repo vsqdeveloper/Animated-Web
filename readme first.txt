@@ -1,1 +1,1 @@
-Created by https://designmodo.com/slides/
+Hey This is a Animated Landing Page Website Template
